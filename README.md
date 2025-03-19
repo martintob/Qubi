@@ -1,1 +1,1 @@
-# Qubi
+# Qubika
